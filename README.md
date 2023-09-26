@@ -1,1 +1,0 @@
-# course selling website soon
